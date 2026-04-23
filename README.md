@@ -1,4 +1,4 @@
-![A very cute boy](chanceheadshotblue.png)
+![A very cute boy](./chanceheadshotblue.png)
 
 
 HELLO! I'm Chance Costas, and I'm in middle school! 
