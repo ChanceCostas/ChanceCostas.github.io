@@ -6,4 +6,4 @@ I love to try to new foods.
 I started video editing at age 11! And I love Greek food and sushi. 
 BTW, my mom is really nice so ya. 
 
-Please follow my Computer Science journey! www.youtube.com/@ChanceCostas
+Please follow my Computer Science journey! https://www.youtube.com/@ChanceCostas
