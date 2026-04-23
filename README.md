@@ -1,6 +1,4 @@
-![alt text](https://github.com/ChanceCostas/ChanceCostas.github.io/blob/11accb95ac76f7c280df1cf929c83a9efad70ce2/ChanceHeadshotBlue.png)
-
-HELLOoooooooo! I'm Chance Costas, and I'm in middle school! 
+HELLO! I'm Chance Costas, and I'm in middle school! 
 
 I'm on a boys' scoccer team that's really nice.
 I perform with a Greek dance troupe at big festivals and convention centers. 
